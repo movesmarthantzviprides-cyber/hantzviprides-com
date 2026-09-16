@@ -1,63 +1,51 @@
 # HantzVIPRides.com - Nigeria Atlantic Coastline Blue-Green Economic Blueprint
 
-**Facilitated by PESMACS**
-**Permanent Secretaries of Culture & Tourism – Atlantic Coastline States**
+**HANTZ INTERNATIONAL NIGERIA LTD | In collaboration with PESMACS**
+**Visibility Platform: hantzviprides.com**
 
-> Official Digital Platform for the Nigeria Atlantic Coastline Blue-Green Economic Blueprint
-> Part of the 55th Anniversary of China-Nigeria Diplomatic Relations (1971-2026) | 2026-2030 Programme of Action
+### 1. Parties
 
-### 🌊 The Vision
+This Letter of Intent is entered into between:
 
-A Federal-level Blue-Green Economic Corridor connecting Nigeria's 8 Atlantic Coastline States from Lagos to Calabar, integrating eco-tourism, maritime heritage, mangrove restoration, and sustainable cruise tourism.
+- **Hantz International Nigeria Ltd (facilitating entity, operating through HantzVIPRides)**
+- **PESMACS (Permanent Secretaries of Culture & Tourism – Atlantic Coastline States)**
+- **Window to China, University of Port Harcourt (UNIPORT), represented by Mr Ugoaru Chinaeme**
+- **Dr Jay Xu, Cultural Ambassador; Director, China–Japan–Korea Innovation Cooperation Center–EU Center; and Executive Director, Association of INTER-CULTURAL SPAIN ASIA**
 
-**8 Atlantic States:** Lagos | Ogun | Ondo | Delta | Bayelsa | Rivers | Akwa Ibom | Cross River
+The four Parties are Major Stakeholders in the Nigeria Atlantic Coastline States Blue-Green Economic Tourism and Boat Cruise Initiatives.
 
-### ⚓ PESMACS - The Coordinating Authority
+### 🏛️ Facilitating Entity
 
-**PESMACS = Permanent Secretaries of Culture & Tourism – Atlantic Coastline States**
+**Hantz International Nigeria Ltd (facilitating entity, operating through HantzVIPRides)**
 
-The 8 Permanent Secretaries of Culture & Tourism from Nigeria's Atlantic coastline states form the statutory coordinating body for policy harmonization, heritage tourism, and Blue Economy implementation.
+- Originator & Concept Owner
+- Platform: hantzviprides.com
+- Operator: HantzVIPRides - VIP Tours, Boat Cruise, Logistics
+- Logistics portal: https://www.hantzviprides.net
+- Booking: 09065099622 | Port Harcourt
 
-PESMACS serves as the secretariat for Blue-Green Economic Blueprint and the Atlantic Coastline Cruise Flagship.
+### 🌊 2. Purpose
 
-### 🤝 Strategic Partnership Framework
+The Parties express their mutual intention to explore and develop a strategic intercultural partnership in support of the Nigeria Atlantic Coastline States Blue-Green Economic Tourism and Boat Cruise Initiatives. The collaboration seeks to enrich coastal tourism products, strengthen cultural diplomacy, attract international technical partners, and promote sustainable blue-green economic opportunities along Nigeria's Atlantic coastline (Lagos, Ogun, Ondo, Delta, Bayelsa, Rivers, Akwa Ibom and Cross River States).
 
-#### 1. PESMACS (Statutory Authority)
-- **Permanent Secretaries of Culture & Tourism – Atlantic Coastline States**
-- Policy harmonization, inter-state tourism corridor governance
-- Secretariat for PESMACS Summit Afloat
+### 🤝 3. Areas of Intended Collaboration
 
-#### 2. Window to China (Cultural Diplomacy)
-- **China Cultural Centre in Nigeria**
-- Official platform for 55th Anniversary (1971-2026) Programme
-- Blue Economy knowledge transfer, cultural exchange, joint heritage promotion
+- Cultural & Experiential Content
+- Academic & Institutional Linkages (Window to China, UNIPORT)
+- International Technical Partnerships (Focal Point – Dr Jay Xu: cruise ships, crews, yachts for weekend VIP voyages)
+- Flagship Support: PESMACS Blue-Green Tourism Summit & December 2026 Cruise (Christmas Day on Bonny Island)
+- Joint Visibility: hantzviprides.com
 
-#### 3. Dr Jay Xu (Technical Focal Point)
-- **Technical Focal Point - Cultural Diplomacy & Blue-Green Strategy**
-- Blueprint technical review & alignment
-- PESMACS-China Centre liaison coordination
-- Flagship Cruise programme design (Dec 19-30, 2026)
-- Documentation & Federal presentation
+### 📄 4. Nature
 
-#### 4. Logistics Execution
-- **HantzVIPRides.net - Official Transport & Logistics Partner**
-- VIP Bus Charter, Airport Transfers, Bonny Island Logistics, PESMACS Delegation Movement, Cruise Ground Handling
-- Link: https://www.hantzviprides.net
-- Booking: 09065099622 (WhatsApp) | Base: Port Harcourt
+Non-binding. Records shared interest and goodwill. No legal/financial obligations. Vessel/crew arrangements defined in subsequent agreements.
 
-### 🚢 Flagship Project: Nigeria Atlantic Coastline Cruise
+### 📅 5. Next Steps
 
-**Date:** December 19-30, 2026
-**Route:** Lagos → Ogun Waters → Ondo → Delta → Bayelsa → Rivers → Akwa Ibom → Cross River (Calabar)
+Exchange info, identify focal persons (Dr Jay Xu for Asian/European technical partners), explore PESMACS Summit participation, develop activity plans for vessels/crews/yachts.
 
-**Christmas Day Anchor:** Bonny Island, Rivers State - December 25, 2026
+---
 
-**Historic Feature:** PESMACS Summit Afloat - First-ever meeting of 8 Permanent Secretaries aboard cruise vessel
-
-**Partnership Structure:**
-- Facilitated by PESMACS
-- In partnership with Window to China (China Cultural Centre)
-- Coordinated by Dr Jay Xu as Technical Focal Point
-- Logistics by HantzVIPRides.net
-
-### 🌐 Digital Platform Structure
+**© 2026 HANTZ INTERNATIONAL NIGERIA LTD | In collaboration with PESMACS**
+**Major Stakeholders: Hantz International | PESMACS | Window to China (UNIPORT) | Dr Jay Xu**
+**Platform: hantzviprides.com | 09065099622**
